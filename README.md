@@ -1,5 +1,5 @@
 # Readme
-If you have any issues feel free to reach out! I am always accessible on Discord (6rim)
+If you have any issues feel free to reach out!
 
 
 
